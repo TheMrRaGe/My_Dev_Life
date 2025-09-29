@@ -68,7 +68,7 @@ _DeFi meets social_
 
 ## 📫 Contact
 
-DM me on GitHub, email [your-email@domain.com], or [@MisterMoonOG on Twitter](https://twitter.com/MisterMoonOG).
+DM me on GitHub, email [Shwiftymr5@gmail.com], or [@MisterMoonOG on Twitter](https://twitter.com/MisterMoonOG).
 
 ---
 
